@@ -1,0 +1,18 @@
+**Task 1**
+---
+**Subtask 1**
+---
+8 punktów :)
+
+
+**Subtask 3**
+---
+Hej hej potrzebuję impulsu do rozwoju i uważam, że ten kurs jest do tego dobrą okazją! 
+Więcej nie mogę napisać bo jestem w pracy, a koleżanka obok komentuje co widzi na moim ekranie ;)
+
+
+**_Kasia_**
+
+
+**Subtask 4**
+---
